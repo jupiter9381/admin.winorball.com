@@ -1,1 +1,0 @@
-# admin.winorball.com
